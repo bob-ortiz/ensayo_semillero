@@ -1,0 +1,2 @@
+# Desarrollo
+Sean cual sean las alternativas de dignificación, estas deben posibilitar que el trabajo doméstico sea considerado como trabajo. Es decir, las actividades del trabajo de la reproducción que se llevan a cabo en las esferas "privadas" deben ser entendidas también como trabajo. Claro está, para dignificar el trabajo doméstico debemos saber qué entendemos por trabajo doméstico. Mies (1986) da luz sobre las características que debe tener un concepto feminista de trabajo ("labor").    
